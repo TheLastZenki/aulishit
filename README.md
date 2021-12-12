@@ -1,2 +1,0 @@
-# aulishit
-no se xD
